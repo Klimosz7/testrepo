@@ -1,2 +1,1 @@
 Jazdaaaaa
-pierwsza zmiana
